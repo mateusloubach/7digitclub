@@ -1,1 +1,1 @@
-# 7digitclub
+Coming Soon Template
